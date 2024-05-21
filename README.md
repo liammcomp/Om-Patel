@@ -1,16 +1,75 @@
-### Hi there 👋
 
-<!--
-**jdsablk/jdsablk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Om Patel
+12:13 PM (0 minutes ago)
+to me
 
-Here are some ideas to get you started:
+# Om S Patel
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Info: 📱
+* 6347 Amber Ln Grand Blanc, MI 48439
+
+* (810)-333-8528
+
+* omspatel59@gbstu.org
+
+* Instagram: @om.patel42
+
+* X: @omspatel42
+
+* Github: jdsablk
+
+## EXPERIENCE:
+
+* Car Cleaning 🚙
+   * February 2024 - Present
+       * Cleaning individual cars and other people's car
+       * Working well with partners
+
+* Student 👨‍🎓
+   * 2012 - Present
+      * Finishing assignments on time
+      * Showing teamwork with classmates
+
+* Manager 👨
+  * July 2021 - May 2024
+     * Managing employees
+     * Handling employees along with helping children
+
+## EDUCATION: 🏫
+* Grand Blanc High School, — 3.98 GPA
+
+    * August 2021 - Present
+
+## SKILLS: 🧠
+
+* Time Management
+
+* Teamwork
+
+* Problem Solver
+
+* Listener
+
+* Communicator
+
+* Strong work ethic
+
+## AWARDS: 🏆
+
+* National Honors Society- 2023,2024
+
+* Grand Blanc Student of the Month- US History- 2022, 2023
+
+* Grand Blanc High School Academic Excellence Award- 2021, 2022, 2023, 2024
+
+
+## VOLUNTEER: 🙋‍♂️
+
+* Volunteer for National Honors Society and have 30 hours currently 
+
+
+## LANGUAGES: 🗺️
+
+* English
+
+* Spanish
