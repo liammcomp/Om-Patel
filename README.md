@@ -74,21 +74,26 @@ to me
 
 * Spanish
 
+* Gujurati
+
+* Hindi
+
 </p>
 
 ## Github Statistics
+
 <p align='center'>
 	<a href="https://github-readme-stats.vercel.app/api?username=jdsablk&show_icons=true&count_private=true">
-	       <img height=150 src="https://github-readme-stats.vercel.app/api?username=aspiece&show_icons=true&count_private=true"/>
+	       <img height=150 src="https://github-readme-stats.vercel.app/api?username=jdsablk&show_icons=true&count_private=true"/>
 	   </a>
 	   <a href="https://github.com/yourusername/github-readme-stats">
-	       <img height=150 src="https://github-readme-stats.vercel.app/api/top-langs/?username=aspiece&layout=compact"/>
+	       <img height=150 src="https://github-readme-stats.vercel.app/api/top-langs/?username=jdsablk&layout=compact"/>
 	   </a>
 </p>
 
 ## 🛠 Technology Stack
-*Github
+* Github
 * Make Code Arcade
 * Phones
 * Computers
-![image](https://github.com/jdsablk/jdsablk/assets/158605809/26017835-2e5d-4c4f-8df9-5886d1599373)
+
