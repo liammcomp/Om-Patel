@@ -1,28 +1,28 @@
 
-Om Patel
+Liam Compton
 12:13 PM (0 minutes ago)
 to me
 
-# Om S Patel
+# Liam M Compton
 
 ## Info: 📱
-* 6347 Amber Ln Grand Blanc, MI 48439
+* 9191 Hidden Oaks Dr, Grand Blanc, MI 48439
 
-* (810)-333-8528
+* (248)-(880)-(3462)
 
-* omspatel59@gbstu.org
+* liammcompton23@gbstu.org
 
-* Instagram: @om.patel42
+* Instagram: @liammcompton
 
-* X: @omspatel42
+* X: @liammcomp
 
-* Github: jdsablk
+* Github: lccompp
 
 ## EXPERIENCE:
 
-* Car Cleaning 🚙
-   * February 2024 - Present
-       * Cleaning individual cars and other people's car
+* Landscaping
+   * July 2023 - Present
+       * Doing landscaping for my dad and other people
        * Working well with partners
 
 * Student 👨‍🎓
@@ -30,19 +30,17 @@ to me
       * Finishing assignments on time
       * Showing teamwork with classmates
 
-* Manager 👨
-  * July 2021 - May 2024
-     * Managing employees
-     * Handling employees along with helping children
+* Wedding junior ushers
+* Working well with others
+* Lot's of experience doing different kinds of work that are used at other jobs
+  
 
 ## EDUCATION: 🏫
-* Grand Blanc High School, — 3.98 GPA
+* Grand Blanc High School, — 2.95
 
     * August 2021 - Present
 
 ## SKILLS: 🧠
-
-* Time Management
 
 * Teamwork
 
@@ -54,18 +52,7 @@ to me
 
 * Strong work ethic
 
-## AWARDS: 🏆
-
-* National Honors Society- 2023,2024
-
-* Grand Blanc Student of the Month- US History- 2022, 2023
-
-* Grand Blanc High School Academic Excellence Award- 2021, 2022, 2023, 2024
-
-
 ## VOLUNTEER: 🙋‍♂️
-
-* Volunteer for National Honors Society and have 30 hours currently 
 
 
 ## LANGUAGES: 🗺️
@@ -74,9 +61,7 @@ to me
 
 * Spanish
 
-* Gujurati
-
-* Hindi
+* Chaldean 
 
 </p>
 
